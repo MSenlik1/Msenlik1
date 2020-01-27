@@ -1,0 +1,7 @@
+# Notlarım
+
+
+
+asdasfdazxcadfvsdzxc
+adfcsddc
+adfzcadfzc
